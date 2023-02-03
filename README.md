@@ -1,0 +1,1 @@
+# appimages.20min-tv.ch
